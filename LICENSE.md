@@ -1,4 +1,4 @@
-# 
+# Premium birdeye sniper bot add-ons for Mac OS | Smart birdeye sniper bot add-ons for PC Windows. Featuring failed tx recovery and price tracking — optimized for maximum performance on every platform.
 
 
 
